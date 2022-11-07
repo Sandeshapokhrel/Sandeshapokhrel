@@ -1,6 +1,6 @@
 - 👋 Hi, I’m sandesha pokhrel (cezol)
 - ⚡ I’m interested in tech,programming,web3,investment,music,gaming.
-- 🌱 I’m currently pursuing bachloer degreen in Information technology.
+- 🌱 I’m currently pursuing bachelor degree in Information technology.
 -  ♡ I love to challenge myself on new stuff. 
 - 🌐 How to reach me , pokhrel.sandesha@gmail.com
 
