@@ -3,7 +3,7 @@
 - 🖥️ I’m currently learning solidity.
 - 🌱 I’m a computer science student.
 - ⚡ I'm currently working as an AMAs hoster, social media account manager , marketer.
-- 💡 skilled in graphic design,animator,content writer,marketing+able to boost your twitter,telegram,discord account.
+- 💡 skilled in graphic design,animator,content writer,marketing+boost your twitter,telegram,discord account.
 -  ♡ love to challenge myself on new stuff. 
 - 🌐 How to reach me, pokhrel.sandesha@gmail.com for collaboration .
 
